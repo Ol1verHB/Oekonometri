@@ -1,0 +1,2 @@
+# Oekonometri
+Økonometri eksamen 
